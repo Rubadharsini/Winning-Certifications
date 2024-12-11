@@ -31,6 +31,9 @@ A heartfelt thanks to my team, friends, family, and mentors for their unwavering
 **🎥 3rd Prize in Short Film Making 🎉**
 🌟 National Level Technical Symposium - QUANTAZ-24 🎉
 I am delighted to share that I attended the National Level Technical Symposium QUANTAZ-24, conducted by Vinayaka Mission's Kirupananda Variyar Engineering College, Salem.
+
+
+
 Short Film Contest 🎥
 
 **Click here to watch the short film**
@@ -48,3 +51,12 @@ Student Coordinator: Shubham Kumar Mishra
 Volunteers: Anish Yadav
 Gratitude
 A heartfelt thank you to the team of Vinayaka Mission's Kirupananda Variyar Engineering College and the volunteers for making this event a great learning experience.
+
+
+**2nd Prize in Mobile Photography**
+
+I am proud to share that I won the **2nd Prize** in the Mobile Photography event at **EGLITZ'22**, a National Level Technical Symposium organized by the **Department of Electronics and Communication Engineering**, Mahendra College of Engineering, Salem.  
+
+**Event Date:** 21st September 2022  
+**Organizer:** Mahendra College of Engineering  
+**Sponsored by:** Odugatech  
