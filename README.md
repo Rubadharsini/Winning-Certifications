@@ -4,6 +4,8 @@ I am thrilled to share that I won 2nd prize in the Short Film Making event organ
 🎬 Watch the Short Film
 Click here to watch the short film
 https://www.youtube.com/watch?v=PFeqeOMNhN0
+Check the full details about the event 
+https://www.linkedin.com/posts/rubadharsini-saravanan-8a87aa24a_shortfilm-filmmaking-awardwinner-activity-7173272079297966080-qzvZ?utm_source=share&utm_medium=member_desktop
 
 Special Thanks
 Director Jayakumar Sir for providing this platform.
